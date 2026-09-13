@@ -1,4 +1,4 @@
-kkoottoorrii.github.io
-https://kkoottoorrii.github.io
+kkoottoorrii5.github.io
+https://kkoottoorrii5.github.io
 
 ※ cerradakabane を自分のユーザー名に変更してください
